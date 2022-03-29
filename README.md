@@ -12,3 +12,6 @@ Always want to learn how to make computers work.
 Do, it's off to my new career.
 
 CainF
+
+Also I'm not much for nicities but I have been
+improving.
